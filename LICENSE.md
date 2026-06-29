@@ -1,4 +1,4 @@
-# 
+# Élite uniswap trading bot extensions for Mac OS | Professionnel uniswap trading bot extensions for PC Windows. Featuring analyse de la dynamique and API d'échange centralisé — optimized for maximum performance.
 
 
 
